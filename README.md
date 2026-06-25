@@ -86,7 +86,7 @@ I'm currently a 6th-semester engineering student at GIKI and a Tech Head & Hike 
 
 ### 📮 How to reach me
 
-* **LinkedIn:** [Your LinkedIn Profile Link Here]
+* **LinkedIn:** https://www.linkedin.com/in/ahsan-ahmad-95ab722a0?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 
 
 * **Email:** ahsanahmad43716@gmail.com
