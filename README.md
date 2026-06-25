@@ -92,4 +92,4 @@ I'm currently a 6th-semester engineering student at GIKI and a Tech Head & Hike 
 * **Email:** ahsanahmad43716@gmail.com
 
 
-* **Location:** Lahore, Punjab, Pakistan
+* **Location:** Islamabad, Pakistan
